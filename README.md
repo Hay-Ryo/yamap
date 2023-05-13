@@ -1,3 +1,0 @@
-# yamap
-# yamap
-# yamap
